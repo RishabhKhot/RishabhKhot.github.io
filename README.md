@@ -1,2 +1,2 @@
-# harshit13.github.io
+# RishabhKhot.github.io
 Personal Webpage
